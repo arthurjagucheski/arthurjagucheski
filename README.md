@@ -1,1 +1,6 @@
 ![cabelo+barba](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/6fc0207c-ef8b-49ce-9e53-0473420a930c)
+![cabelo](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/bffe8923-0d74-4586-a743-6ee5eea30c69)
+![banner](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/208fb2e7-01f3-4d9b-8d2d-dfdd99596953)
+![beneficios](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/3608475c-2791-4fd3-b8a1-62b4cae88308)
+![logo](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/84e8baa9-4823-4485-b2cf-32aec2608e87)
+![logo-branco](https://github.com/arthurjagucheski/arthurjagucheski/assets/137941491/645b6ffa-9011-4e4f-bcd9-45024b400bb2)
